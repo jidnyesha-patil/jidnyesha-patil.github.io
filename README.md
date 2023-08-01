@@ -1,2 +1,2 @@
-# jidnyesha.github.io
+# jidnyesha-patil.github.io
 Personal Website
